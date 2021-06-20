@@ -10,4 +10,5 @@ I am a multi-media journalist turned software engineer. I am graduating from App
 - 📫 How to reach me: qchen6060@gmail.com.
 - 😄 Pronouns: she/her/hers.
 - ⚡ Fun fact: I used to be a multi-meia journalist covering New York local news and stock market.
+- 🙋🏻‍♀️ Check out my Website [here](https://qchen0407.github.io/)! Let's connect.
 
